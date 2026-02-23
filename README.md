@@ -1,1 +1,1 @@
-# detec.to
+# detecto.pro
